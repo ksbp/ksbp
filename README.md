@@ -2,7 +2,6 @@
 
 I'm a musician, game developer, multimedia artist, and writer based in the midwestern US.
 
-- [Website](https://ksbp.space/ship/)
 - [Bandcamp](https://music.ksbp.space)
 - [itch.io](https://ksbp.itch.io)
 - [Twitch](https://twitch.tv/ksbptv)
