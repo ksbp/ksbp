@@ -1,4 +1,4 @@
-🙋‍♀️ Hi, I’m Stef (she/they)
+🙋‍♀️ Hi, I’m Stef (they/she/he)
 
 I'm a musician, game developer, multimedia artist, and writer based in the midwestern US.
 
